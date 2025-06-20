@@ -1,6 +1,6 @@
 ![image](https://github.com/user-attachments/assets/83e47f0a-5be0-4ee9-8517-dce0cbe729ae) 
-               
 
+           
 
    hi silly, i`m *SASIBOTT.* _he|him_ AND **russ #1**||| ``all time AFK ``         |||
   
@@ -19,6 +19,8 @@
 **for more info or my socials**, *check my card~*
 
 ![image](https://github.com/user-attachments/assets/8e0bd5dc-a2c5-402b-a9da-218778e0c4bf)
+
+  ***∞***
 
 
 <!--
