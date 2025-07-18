@@ -16,7 +16,7 @@
 
 *dni* - wlw community. ***(I'm not a misogynist fuckers)***, sissies, conceits, transgender, overly kind people, those who do not understand black humor.
 
-**for more info or my socials**, *check my card~*
+**for more info or my socials**, [check my card~](https://sasibott.carrd.co)
 
 ![image](https://github.com/user-attachments/assets/8e0bd5dc-a2c5-402b-a9da-218778e0c4bf)
 
