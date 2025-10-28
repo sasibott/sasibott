@@ -1,7 +1,6 @@
 
-
-           
-
+   ![](https://komarev.com/ghpvc/?username=SASIbott&color=grey)
+-----------
    hi silly, im *SASIBOTT.* _he|him_ AND **russ #1** -> ||`""spawn-hsr zone-genshin zone- squid game zone""`|| 
    
    || ``all time AFK ``         |||
