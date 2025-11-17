@@ -31,6 +31,7 @@
 
 *for more info or my socials*, [check my card~](https://sasibott.carrd.co)  
 
+*That's all... ok? ok.*
 ________________________________________________________________
 
 <img width="735" height="700" alt="image" src="https://github.com/user-attachments/assets/57510d66-daf9-4eef-aaf4-6aaeb2698f06" />
