@@ -13,7 +13,7 @@
 
     
 -----------
-   hi silly, im *SASIBOTT.* _he|him_ AND **russ #1** -> ||`""spawn-hsr zone-genshin zone- squid game zone""`|| 
+   hi silly, im *SASIBOTT.* _he|him_ AND **russ #1** -> ||`""spawn""`|| 
    
    || ``all time AFK ``         |||
   
