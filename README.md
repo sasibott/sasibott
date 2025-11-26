@@ -13,7 +13,7 @@
 
     
 -----------
-   hi silly, im *SASIBOTT.* _he|him_ AND **russ #1** -> ||`""spawn""`|| 
+   hi silly, im *SASIBOTT.* _he|him_ AND **russ #1** -> ||`""spawn - hazbin hotel zone""`|| 
    
    || ``all time AFK ``         |||
   
